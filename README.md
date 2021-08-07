@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Uk5O
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning about coding and keyboards
